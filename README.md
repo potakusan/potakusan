@@ -1,7 +1,7 @@
 ## Howdy!
 A professional of walk-in sales, working at a trashy old-economy company.
 
-##Links
+## Links
 Twitter [@210120090722O19](https://twitter.com/210120090722O19)
 
 <a href="https://github.com/anuraghazra/github-readme-stats">

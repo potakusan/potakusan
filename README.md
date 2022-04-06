@@ -1,5 +1,5 @@
 ## Howdy!
-A professional of walk-in sales, working at a trashy old-economy company.
+A nooby walk-in sales, working at a trashy old-economy company.
 
 ## Links
 Twitter [@210120090722O19](https://twitter.com/210120090722O19)
